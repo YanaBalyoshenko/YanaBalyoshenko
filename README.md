@@ -1,2 +1,2 @@
-- Hi, I’m @YanaBalyoshenko
+- Hi, I’m @YanaBaloshenko
 - How to reach me: my email is yana.baloshenko@gmail.com
